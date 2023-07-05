@@ -2,7 +2,7 @@
 
 ***
 
-## **\ [Pupil of a pupil of preschool education RS SCHOOL.]**
+## **[Pupil of a pupil of preschool education RS SCHOOL]**
 
 ***
 
