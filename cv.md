@@ -1,5 +1,5 @@
-# **Naumov Pavel** *(PavelSN)[https://pavelsn.github.io/rsschool-cv/cv]*
-
+# **Naumov Pavel** *[PavelSN](https://pavelsn.github.io/rsschool-cv/cv "Nickename GITHUB")*
+"
 ***
 
 ## **[Pupil of a pupil of preschool education RS SCHOOL]**
