@@ -1,4 +1,5 @@
-# **Naumov Pavel** *[PavelSN](https://pavelsn.github.io/rsschool-cv/cv "Nickename GITHUB")*
+# **Naumov Pavel** 
+*[(PavelSN)](https://pavelsn.github.io/rsschool-cv/cv "Nickename GITHUB")*
 "
 ***
 
