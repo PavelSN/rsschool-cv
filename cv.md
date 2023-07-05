@@ -1,6 +1,6 @@
 # **Naumov Pavel** 
 *[(PavelSN)](https://pavelsn.github.io/rsschool-cv/cv "NIKNAME GITHUB")*
-"
+
 ***
 
 ## **[Pupil of a pupil of preschool education RS SCHOOL]**
