@@ -1,6 +1,6 @@
 # **Naumov Pavel**
 
-![GUTHUB](https://avatars.mds.yandex.net/i?id=21d8386f7c3989bf2ad480ae48bb0e7423d5d1ec-9152303-images-thumbs&ref=rim&n=33&w=480&h=144 "GUTHUB") *[PavelSN](https://pavelsn.github.io/rsschool-cv/cv "NIKNAME GITHUB")*
+*[PavelSN](https://pavelsn.github.io/rsschool-cv/cv "NIKNAME GITHUB")*
 
 ***
 
