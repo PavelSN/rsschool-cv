@@ -1,5 +1,6 @@
-# **Naumov Pavel** 
-*[(PavelSN)](https://pavelsn.github.io/rsschool-cv/cv "NIKNAME GITHUB")*
+# **Naumov Pavel**
+
+![GUTHUB](https://ru.odvme.com/uploads/posts/2022-12/github.webp"GUTHUB") *[PavelSN](https://pavelsn.github.io/rsschool-cv/cv "NIKNAME GITHUB")*
 
 ***
 
